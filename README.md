@@ -25,6 +25,3 @@ Contact Us
 If you have any questions about this Privacy Policy, you can contact us at:
 Email:abbas_abid69@yahoo.com
 
-
-
-bhi bana deta hoon 👍
